@@ -1,0 +1,1 @@
+# fen-bilimleri-6-sinif-soru-bankasi-volkan-32
